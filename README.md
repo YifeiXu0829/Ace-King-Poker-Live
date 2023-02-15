@@ -23,5 +23,6 @@ Hope you enjoy it !
 
 [walk-through video link](https://www.youtube.com/watch?v=g5ECNrFf6CI)
 
-if you have any questions, please send us an email at **yifei.xu.customer.service@gmail.com**
+if you have any questions or need support, please send us an email at **yifei.xu.customer.service@gmail.com**
 
+We will respond within 3 business days.
